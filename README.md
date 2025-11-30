@@ -37,6 +37,6 @@ This community service project focused on enhancing awareness about dairy busine
 ## 📫 Contact
 **Rekha Chowdary Kommineni**  
 - **Phone:** 7901266761  
-- **Email:** rekhachowdarykommineni@gmail.com  
+- **Email:** rekha.kchowdary@gmail.com    
 - **Location:** Mangalam, Tirupati – 517507
 
